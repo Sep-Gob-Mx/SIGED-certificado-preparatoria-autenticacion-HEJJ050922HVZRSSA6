@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEJJ050922HVZRSSA6
+HEJJ050922HVZRSSA6
